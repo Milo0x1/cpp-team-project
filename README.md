@@ -1,1 +1,2 @@
 milosz blaszczyk
+Natalia Parszywka
